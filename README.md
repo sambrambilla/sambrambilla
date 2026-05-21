@@ -1,7 +1,7 @@
 ## Hello there 👋 🧔🏼
 I'm Sam Brambilla
 
-Co-Founder & CEO at Moonrad
+Co-Founder & Head of Product at Moonrad
 
 Product 💼 • Cecília & Jolie & Xuxu 😻 • Star Wars 🤖 • Akira 💊 • Metal 🤘🏻
 
